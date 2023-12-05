@@ -3,7 +3,8 @@
 - 🌱 I’m currently learning: How to code HTML sites
 - 💞️ I’m looking to collaborate on: Nothing! I'm an independent coder on github
 - 📫 How to reach me: spacewd on discord
-- Come back on <b>December 1st</b> for some questions!
+- What day did Club Penguin release?
+[A] October 24th 2005 [B] December 25th 2006 [C] September 26th 2000
 
 <!---
 Fuck off!
