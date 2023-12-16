@@ -2,7 +2,8 @@
 - 👀 I’m interested in: Club Penguin, HTML, & CSS
 - 🌱 I’m currently learning: How to code HTML sites
 - 💞️ I’m looking to collaborate on: Nothing! I'm an independent coder on github
-- 📫 How to reach me: spacewd on discord
+- 📫 How to reach me: spacewd on Discord through the Penguin Game Discord Server.
+- ![Discord](https://discord-readme-badge.vercel.app/api?id=952609750460301352)
 - What day did Club Penguin release?
 [A] October 24th 2005 [B] December 25th 2006 [C] September 26th 2000
 
