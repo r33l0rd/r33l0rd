@@ -5,7 +5,7 @@
 - 📫 How to reach me: spacewd on Discord through the Penguin Game Discord Server.
 ![Discord](https://discord-readme-badge.vercel.app/api?id=952609750460301352)
 - More Questions Soon!
-- yes my pfp is bambi from dave and bambi with a carl face on his hat, deal with it.
+- Is that a Sylveon holding a kn- ok that's getting old, yes that is a Sylveon holding a knife and eating pie, both of which are assets from undertale I put on a Sylveon png
 
 <!---
 Fuck off!
