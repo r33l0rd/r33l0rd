@@ -8,7 +8,7 @@
 
 - Age: 13 (This is no joke I literally am 13)
 - More Questions Soon!
-- Pyro 2fort TF2 hehe
+- Gerald!! What did I say no drinking milk?? What did I say??
 <!---
 Fuck off!
 ---!>
