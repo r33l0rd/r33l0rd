@@ -8,6 +8,7 @@
 - Age: 14
 - My birthday is on September 19th
 - Gerald!! What did I say no drinking milk?? What did I say??
+- please don't follow me if I don't know you ☹️
 <!---
 Fuck off!
 ---!>
