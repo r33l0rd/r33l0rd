@@ -1,7 +1,7 @@
-- 👋 Hi, I’m SpaceWD
-- 👀 I’m interested in: Club Penguin, Team Fortress 2, GMOD, HTML, & CSS
-- 🌱 I’m currently interested in: an experiment
-- 📫 How to reach me: I have recently been active on Steam.
+- 👋 Hi, I’m GhostyBoi
+- 👀 I’m interested in: Undertale, DuckTales, Team Fortress 2, GMOD, HTML, & CSS
+- 🌱 I’m currently interested in: modding Undertale
+- 📫 How to reach me: Discord.
 
 ![Discord](https://discord-readme-badge.vercel.app/api?id=952609750460301352)
 
