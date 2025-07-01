@@ -3,7 +3,7 @@
 
 # Important
 - Age: 14
-- Trans MtF
+- Lacks a gender :P
 <!---
 Fuck off!
 ---!>
